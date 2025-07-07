@@ -11,4 +11,4 @@
 
 日本AV免费影片平台为你提供了多样的选择，影片内容更新频繁，保证你可以找到最新的资源。平台提供清晰的分类，包括演员、类型、更新日期等，帮助你轻松筛选想看的影片。每个视频页面都有详细的描述，帮助用户了解影片的基本信息。视频播放流畅，平台根据网络状况自动调整画质，确保无卡顿体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hehe20250707/hehe6 ）</span>
